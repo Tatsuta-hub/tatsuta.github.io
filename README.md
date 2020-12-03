@@ -1,2 +1,2 @@
-# tatsuta.github.io/photo
+# tatsuta.github.io
 
